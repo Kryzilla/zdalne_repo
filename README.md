@@ -1,1 +1,0 @@
-# zdalne_repo
